@@ -24,10 +24,11 @@ want other stuff about me? don't be afraid to become my friend!! i don't bite >�
 disclaimer: i am EXTREMELY brainrotted sigh<br/>
 <br/>
  <img width="1024" height="200" alt="image" src="https://github.com/user-attachments/assets/ff1fcc5c-908b-43d7-858c-74e03345fd70" /> 
- ⤷ BLINKIES & STUFFS,,<br/>
+ ⤷ RANDOM STUFFS,,<br/>
  <br/>
  <br/>
- <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/35fe2dc9-ab17-491f-b9d4-de3d0a1b2150" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b1f66c9a-3ae9-4df1-96a5-6ac0a0ba087e" />
+ <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/35fe2dc9-ab17-491f-b9d4-de3d0a1b2150" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b1f66c9a-3ae9-4df1-96a5-6ac0a0ba087e" /> ![pyrored](https://github.com/user-attachments/assets/16d093ac-ab95-4a3f-b429-6393c5c7d421)
+
 
 
 
