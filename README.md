@@ -1,5 +1,5 @@
 ## wip !
-<img width="600" height="50" alt="image" src="https://github.com/user-attachments/assets/89b40fb3-183d-41e3-893f-2686b49da33e" />
+<img width="700" height="50" alt="image" src="https://github.com/user-attachments/assets/89b40fb3-183d-41e3-893f-2686b49da33e" />
 <!--
 **pyromaniakk/pyromaniakk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
