@@ -24,10 +24,15 @@ want other stuff about me? don't be afraid to become my friend!! i don't bite >�
 disclaimer: i am EXTREMELY brainrotted sigh<br/>
 <br/>
  <img width="1024" height="200" alt="image" src="https://github.com/user-attachments/assets/ff1fcc5c-908b-43d7-858c-74e03345fd70" /> 
- ⤷ RANDOM STUFFS,,<br/>
+ ⤷ RANDOM STUFFS,, [WIP!]<br/>
  <br/>
  <br/>
- <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/35fe2dc9-ab17-491f-b9d4-de3d0a1b2150" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b1f66c9a-3ae9-4df1-96a5-6ac0a0ba087e" /> ![pyrored](https://github.com/user-attachments/assets/16d093ac-ab95-4a3f-b429-6393c5c7d421)
+ <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/35fe2dc9-ab17-491f-b9d4-de3d0a1b2150" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b1f66c9a-3ae9-4df1-96a5-6ac0a0ba087e" /> <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/4956fa38-b564-4b94-b75f-6938a6bfb2c1" /> <img width="100" height="138" alt="image" src="https://github.com/user-attachments/assets/2128beaa-f38b-42bc-90df-318bb1246e47" /> <img width="100" height="100" alt="tumblr_486b0fa81c23e3882aec2cd81dce1865_ef0dde1b_400" src="https://github.com/user-attachments/assets/163f8454-1f0d-414e-a738-1c7a2570a12b" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b7968635-fde5-4cc8-a915-6f143acd98e3" />
+
+
+
+
+
 
 
 
