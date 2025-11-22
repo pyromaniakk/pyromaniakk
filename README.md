@@ -1,10 +1,9 @@
-## wip !
+##        
 <img width="2048" height="68" alt="image" src="https://github.com/user-attachments/assets/5570a448-f0f3-455b-bb0a-17bb5e3a146e" />
 <!--
-**pyromaniakk/pyromaniakk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
+˙𐃷˙ . hello !! you can call me pyro , sniper , or jona ! 
+. i go by he / they / it , and im a minor !! (uncomfortable with sharing age)
+<!-- - for sys information , please ask , as i don't like to keep stuff like that in the open. 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
