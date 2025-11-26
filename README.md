@@ -50,7 +50,6 @@ disclaimer: i am EXTREMELY brainrotted sigh<br/>
 <br/>
 <br/>
 <img src="https://file.garden/aSd5lebnTCh3RN_v/tumblr_dadeb9b1d1f53f5549af684f5a58484c_e3ab355a_250.webp">
-<img src="https://file.garden/aSd5lebnTCh3RN_v/tumblr_5fcfba0bc6d7da83b9828d4ae4711f04_3442cfd8_250.webp">
  <img src="https://file.garden/aSd5lebnTCh3RN_v/tumblr_9592ea86d6890402f970cd924ecd4461_8a78c02d_250.webp">
 <img src="https://file.garden/aSd5lebnTCh3RN_v/tumblr_7537d99d59647dfddd49609e4a6bb399_54f150d7_250.gif">
 
