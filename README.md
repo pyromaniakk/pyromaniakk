@@ -16,7 +16,7 @@
 <p align="center">
 , don't be afraid to sit next to me ! i'm free c+h and (unfortunately) offtab often.. so get over here!!
 <p align="center">
-i associate myself with pyro , scout , dave strider , tord , and terezi , if i ask you to call me by them for now then please respect that<br/>
+i associate myself with pyro , scout , sniper , dave strider , tord , and terezi , if i ask you to call me by them for now then please respect that<br/>
  ..
 <img width="2048" height="68" alt="image" src="https://github.com/user-attachments/assets/5570a448-f0f3-455b-bb0a-17bb5e3a146e" /><br/>
 <p align="center">
