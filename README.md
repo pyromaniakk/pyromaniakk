@@ -52,7 +52,15 @@ disclaimer: i am EXTREMELY brainrotted sigh<br/>
 <img src="https://file.garden/aSd5lebnTCh3RN_v/tumblr_dadeb9b1d1f53f5549af684f5a58484c_e3ab355a_250.webp">
  <img src="https://file.garden/aSd5lebnTCh3RN_v/tumblr_9592ea86d6890402f970cd924ecd4461_8a78c02d_250.webp">
 <img src="https://file.garden/aSd5lebnTCh3RN_v/tumblr_7537d99d59647dfddd49609e4a6bb399_54f150d7_250.gif">
-
+<br/>
+<br/>
+<br/>
+<br/>
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ngu3t6dm6zdduut6ctik7y6qri&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=e6402d&bar_color_cover=true">
+  </a>
+</p>
 
 
 
