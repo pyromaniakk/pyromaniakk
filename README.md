@@ -40,6 +40,7 @@ disclaimer: i am EXTREMELY brainrotted sigh<br/>
  <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/35fe2dc9-ab17-491f-b9d4-de3d0a1b2150" /> 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b1f66c9a-3ae9-4df1-96a5-6ac0a0ba087e" />
  <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/1cbc945e-e075-4ead-a601-0b4ea385786c" />
+ <img src="https://file.garden/aSd5lebnTCh3RN_v/f59.gif">
 
  <br/>
  <br/>
@@ -54,6 +55,8 @@ disclaimer: i am EXTREMELY brainrotted sigh<br/>
 <img src="https://file.garden/aSd5lebnTCh3RN_v/tumblr_7537d99d59647dfddd49609e4a6bb399_54f150d7_250.gif">
 <img src="https://file.garden/aSd5lebnTCh3RN_v/tumblr_df24c614943202c95a7fed5823b12ce5_9457de8c_250.webp">
 <img src="https://file.garden/aSd5lebnTCh3RN_v/tumblr_62b9aedeec01ca026b895da5dc18f8a7_04f9a554_250.webp">
+<img src="https://file.garden/aSd5lebnTCh3RN_v/a40.gif">
+<img src="https://file.garden/aSd5lebnTCh3RN_v/e23.gif">
 <br/>
 <br/>
 <br/>
