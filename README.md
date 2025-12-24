@@ -7,7 +7,7 @@
 <p align="center">
 ˙𐃷˙ . hello !! you can call me pyro , jer/jeremy , or jona !  
 <p align="center">
-. i go by he / they / it , and im a minor ! (uncomfortable with sharing age)  
+. i go by he / they / it , but additional prns you can ask me for 
 <p align="center">
 - for system information , please ask , as i don't like to keep stuff like that in the open.  
 <img width="1024" height="200" alt="image" src="https://github.com/user-attachments/assets/ff1fcc5c-908b-43d7-858c-74e03345fd70" />  
