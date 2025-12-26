@@ -2,6 +2,7 @@
 <img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/89194720-4b6a-49a5-87fc-22a9dc799665" />
 
 <img width="2048" height="68" alt="image" src="https://github.com/user-attachments/assets/5570a448-f0f3-455b-bb0a-17bb5e3a146e" />
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=pyromaniakk&label=little%20buddies&color=red&style=plastic" alt="pyromaniakk" /> </p>
 <p align="center">
  INFO !
 <p align="center">
@@ -9,7 +10,8 @@
 <p align="center">
 . i go by he / they / it , but additional prns you can ask me for 
 <p align="center">
-- for system information , please ask , as i don't like to keep stuff like that in the open.  
+- for system information , please ask , as i don't like to keep stuff like that in the open.  <br/>
+
 <img width="1024" height="200" alt="image" src="https://github.com/user-attachments/assets/ff1fcc5c-908b-43d7-858c-74e03345fd70" />  
 <p align="center">
 ◡̈ . i like to write , draw , play tennis , start fires outside , and (occasionally) dabble into a bit of roleplaying..  
